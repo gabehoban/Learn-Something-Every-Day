@@ -1,1 +1,1 @@
-# Learn-Something-Every-Day
+# Something-Every-Day
